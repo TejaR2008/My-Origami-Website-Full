@@ -1,1 +1,1 @@
-https://tejar2008.github.io/My-Origami-Website/
+https://tejar2008.github.io/My-Origami-Website-Full/
